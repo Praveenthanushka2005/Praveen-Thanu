@@ -1,2 +1,2 @@
-# Praveen-Thanu
-© | Ｍａｌｉｙａ | ම ලි යා | ©
+Wa
+bot
